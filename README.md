@@ -1,6 +1,7 @@
 # Subterraneanhomesickalien7
 HI!!!
 Feel free to boop/whisper whenever!!!I promise im friendly gng😔 Ill probably make a Strawpage for more info soon, here are some blinkies for now (not mine)
+NOTE I never check my Git so I might follow back kinda late
 <img src="https://external-media.spacehey.net/media/spSS3DhDcHcp7tpqoJH0CTiMoH288stkHBzz4_7gtgFo=/https://64.media.tumblr.com/ddca9fd5f24f3ec762caecc0c29a9584/7ca3b01fde00cddf-98/s400x600/6c70baa37d9a52a18d4db12b973507a9ccf7ea50.pnj" >
 <img src="https://external-media.spacehey.net/media/s0MlJDgtWjLC4ubntBroKfe2SoSbhhLVKPDtylA8JbqE=/https://64.media.tumblr.com/b7e1a5659f74ef790c27e32b72d0b5e7/7ca3b01fde00cddf-5e/s400x600/45e3ddde508ecab3fdf7c41d9c639fa35fbdc993.pnj" >
 ![blinkie](https://external-media.spacehey.net/media/sS07nLXiGtUg65LnUOoA-fE-dvpWmsN8GnYYh3w6wFPs=/https://64.media.tumblr.com/0469deffd26954baa988c7b295d463c2/ed43be6f38cfa87b-92/s400x600/aedd37f4c6d3770da056e1711c2619294d519b6c.pnj)
@@ -16,5 +17,4 @@ Feel free to boop/whisper whenever!!!I promise im friendly gng😔 Ill probably 
 <img src="https://64.media.tumblr.com/51a9f25a54d9315941e490a3639a5cc2/5bdcc0636532e640-b8/s250x400/b571690d0432b9d00ab7a191232fadef4ced4582.gifv" width="150">
 <img src="https://64.media.tumblr.com/780208a27a789b5cb4d54fe8cf62f9d7/0aad569ecb591b21-72/s250x400/d5ec343fd70e71a1ae9b3a67e24f749fee8970aa.gifv" width="150">
 <img src="https://64.media.tumblr.com/8fa659b7e3b468ddc9e9a2a9c008ada2/626394bc4f6a8834-c8/s250x400/6f1b88cb6a7a0267746b4b926ef60415e850b171.gifv" width="150">
-<img src="https://64.media.tumblr.com/911a6dddb7d06b43c7b084e8fbc24263/70a124826bb1632d-7e/s250x400/2d07f2612f35ed60868f9450249a68b72816cf54.gifv" width="150">
 <img src="https://64.media.tumblr.com/2c4752fec227669dc13da56c8460bcf7/70a124826bb1632d-ba/s250x400/ae9b0eee77045ea06bfc385ab1d146cdea90c336.gifv" width="150">
